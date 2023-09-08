@@ -10,3 +10,6 @@ Scarlet nodded with a smile, taking the basket filled with warm bread, sweet tre
 
 As she made her way through the towering trees, the dappled sunlight painted intricate patterns on the forest floor, and the air was filled with the sweet scent of wildflowers. Little did Scarlet know that her journey through the woods would soon take an unexpected turn...
 
+And the story follow a Scarlet happily and joyfully that was not aware that she was going directly to the deepest side of the forest.
+
+What was waiting scarlet there, a band of wild animals...
