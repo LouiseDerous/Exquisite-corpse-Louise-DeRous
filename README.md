@@ -13,3 +13,10 @@ As she made her way through the towering trees, the dappled sunlight painted int
 And the story follow a Scarlet happily and joyfully that was not aware that she was going directly to the deepest side of the forest.
 
 What was waiting scarlet there, a band of wild animals...
+
+# Alemash
+## The wolf
+I love this story from I was a little girl
+But I thought this was about the wolf who ate her Grandma and pretended to be her
+Please remind me what was the title of the story
+### LITTLE RED HOOD maybe??
